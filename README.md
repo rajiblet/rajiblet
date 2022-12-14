@@ -1,0 +1,5 @@
+- 👋 Hi, I’m rajiblet
+- 👀 I’m interested in growing my startup [trendees](https://trendees.me)
+- 🌱 I’m currently learning marketing
+- 💞️ I’m looking to collaborate on designing
+- 📫 How to reach me [instagram](https://instagram.com/rajib_jazz)
